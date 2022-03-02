@@ -1,1 +1,3 @@
-tf you doing here gtfo
+wdxp.
+
+just a smol coder with a smol passion 🍎
